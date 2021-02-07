@@ -1,0 +1,1 @@
+# Magisterka_UWM_2k21
